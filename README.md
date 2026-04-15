@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-ROGJ901218MGTJMN08
+ROGJ901218MGTJMN08
